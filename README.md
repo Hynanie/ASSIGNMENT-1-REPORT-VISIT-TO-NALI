@@ -5,3 +5,7 @@ Attending NALI 2023 and participating in the interview sessions has significantl
 # SUGGESTION FOR IMPROVEMENT ⋆｡‧˚ʚ♡ɞ˚‧｡⋆
 
 To further enhance the impact of NALI 2023, consider actively engaging with industry professionals and experts during the conference. Seek opportunities for hands-on experiences, workshops, or collaborative projects that allow participants to apply theoretical knowledge in real-world scenarios. Additionally, promoting networking sessions can foster valuable connections with professionals and peers, creating a platform for knowledge exchange and potential collaborations. This proactive approach can not only deepen your understanding of the course material but also provide practical insights that go beyond traditional interview sessions. By incorporating more interactive elements, NALI 2023 has the potential to offer a comprehensive and enriching experience for attendees, contributing even more significantly to their growth in the field of Technology Information Systems.
+
+# OTHERS ⋆｡‧˚ʚ♡ɞ˚‧｡⋆
+
+The NALI exhibition has ignited my curiosity and passion for delving into the realms of innovative educational technologies. I am eager to participate in upcoming advancements and collaborative ventures within this field. Ultimately, my aspiration is to play a role in advancing ICT to revolutionize education, ensuring it becomes more accessible, engaging, and tailored to the contemporary needs of students today.
